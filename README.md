@@ -1,1 +1,1 @@
-Lecture_STUDY
+Lecture_Study
